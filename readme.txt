@@ -1,4 +1,4 @@
 Nama: Cleonidius 
 NIM: 712612318
-Hobi : main hsr
-
+Nama : Cleonidius
+NIM : 712612git38
